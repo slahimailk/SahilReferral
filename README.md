@@ -1,15 +1,36 @@
-Teen Patti Master Referral
+# 🎮 Sahil Teen Patti Master Game
 
-**Join Teen Patti Master and start earning real cash!**
+Welcome to **SahilTeenPattiGame** Repo!  
+Join **SahilGamingX** on Teen Patti Master and start playing today.  
+Win money 💰, get rewards 🎁, and enjoy unlimited fun!  
 
-Use my referral link to sign up and get a bonus:
+---
 
-👉 [Click here to Join Now](https://www.earntp.com/m/zi1t6g)
+## 📲 How to Download & Play
+1. Click here to download 👉 [Teen Patti Master](https://www.earntp.com/m/zi1t6g)  
+2. Register with your mobile number 📱  
+3. Enter Referral Code: **(Your Code Here)**  
+4. Get instant bonus & start playing 🚀  
 
-### How It Works:
-1. Click the link above and install the Teen Patti Master app.
-2. Register using your phone number.
-3. Start playing and earning!
-4. Invite your friends using your own referral code after signing up.
+---
 
-**Start earning today – don’t miss 
+## 📢 Join Our Community
+- 🔗 Telegram: [@SahilGaming_90](https://t.me/SahilGaming_90)  
+- 📺 YouTube: [SahilGaming90](https://youtube.com/@sahilgaming90)  
+- 📸 Instagram: [@sahilmaliik](https://instagram.com/sahilmaliik)  
+
+---
+
+## ⚡ Features
+- ✅ Safe & Secure Gaming  
+- ✅ Daily Bonus Coins  
+- ✅ Withdraw Real Cash to Bank / UPI  
+- ✅ Invite Friends & Earn More  
+
+---
+
+## 📜 Disclaimer
+⚠️ This game involves financial risk. Please play responsibly.  
+18+ Only. Not for minors.
+
+
